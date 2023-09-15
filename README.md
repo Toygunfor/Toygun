@@ -1,5 +1,5 @@
 Welcome to toygun's website
 
 
-                                                                                          ![image](https://github.com/Toygunfor/Toygun/assets/145143096/06ebe5ce-ce99-4bf6-acf5-e7b90fecf8c6)
+                                                                                          ![image](https://github.com/Toygunfor/Toygun/assets/145143096/ec25aae1-6879-44e8-9241-65ff9c155f05)
 
